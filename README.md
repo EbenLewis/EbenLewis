@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @EbenLewis 
+- 👀 I’m interested in 3d printing and coding 
+- 🌱 I’m currently learning Java, Python, Fusion 360
+- 💞️ I’m looking to collaborate on whatever
+- 📫 How to reach me idk
+- 😄 Pronouns: he/him
